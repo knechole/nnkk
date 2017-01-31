@@ -1,0 +1,2 @@
+# nnkk
+for academic activities
